@@ -1,5 +1,5 @@
 # 💫 About Me:
-💻 Full Stack dev<br>+ 6 años de experiencia<br>✈️Amo viajar<br>Miembro de la Iglesia de Jesucristo de los Santos de los Últimos Días
+💻 Full Stack dev<br>+ 7 años de experiencia<br>✈️Amo viajar<br>Miembro de la Iglesia de Jesucristo de los Santos de los Últimos Días
 
 
 ## 🌐 Socials:
